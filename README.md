@@ -1,1 +1,2 @@
 # infinitegemcrush.github.io
+google.com, pub-8364014630829569, DIRECT, f08c47fec0942fa0
